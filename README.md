@@ -20,7 +20,7 @@
 <br />
 <br />
 
-<sub><sub> Rentry shared with ml <3 </sub></sub>
+<sub><sub> Rentry shared with ml <3 bigguykoi is my Main acc </sub></sub>
 
 <br />
 <br />
@@ -28,5 +28,5 @@
 
 
   
-@bigguykoi = Main
+
 
