@@ -28,5 +28,5 @@
 
 
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3176d66wffyhd4zfphvsyk44it3y&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&bar_color_cover=false&bar_color=aa0000)](https://github.com/kittinan/spotify-github-profile)
+@bigguykoi = Main
 
