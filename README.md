@@ -15,12 +15,12 @@
 
 
 
-<sub>ㅤ[ata](https://sillybillykoijoi.atabook.org/)ㅤㅤ.ㅤㅤ[straw](https://sillybillykoijoii.straw.page/)ㅤㅤ.ㅤ [rentry](https://rentry.co/besame-mucho)ㅤ</sub>
+<sub>ㅤ[新book](https://ironman.atabook.org)ㅤㅤ.ㅤㅤ[strawpage](https://sillybillykoijoii.straw.page/)ㅤㅤ.ㅤ [rentry](https://rentry.co/besame-mucho)ㅤ</sub>
 
 <br />
 <br />
 
-<sub><sub> Rentry shared with ml <3 bigguykoi is my Main acc </sub></sub>
+<sub><sub> (outdated) Rentry shared with the huzz <3 bigguykoi is my Main acc </sub></sub>
 
 <br />
 <br />
