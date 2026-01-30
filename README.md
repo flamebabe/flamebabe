@@ -1,32 +1,53 @@
 <div align="center">
 
   
-![](https://komarev.com/ghpvc/?username=sillybillykoijoi&color=000000&label=Folks&style=plastic)
+![](https://komarev.com/ghpvc/?username=sillybillykoijoi&color=b72a3e&label=Folks&style=plastic)
 <br />
 
 
 
 
-<img width="1248" height="1000" alt="image" src="https://github.com/user-attachments/assets/77478790-fce4-42de-b2da-eb6d11233bb7" />
+<img align="right" width="732" height="732" alt="image" src="https://github.com/user-attachments/assets/657a8fd7-da94-4e50-933b-aa19819ed7e4" />
 
 
 
 
-
-
-
-<sub>ㅤ[新book](https://ironman.atabook.org)ㅤㅤ.ㅤㅤ[strawpage](https://sillybillykoijoii.straw.page/)ㅤㅤ.ㅤ [rentry](https://rentry.co/besame-mucho)ㅤ</sub>
 
 <br />
 <br />
 
-<sub><sub> (outdated) Rentry shared with the huzz <3 bigguykoi is my Main acc </sub></sub>
-
 <br />
 <br />
 <br />
+<br />
+<br />
+
+<br />
+<br />
+
+ <sub>
+ 
+ㅤ[新book](https://ironman.atabook.org) 
+
+<br />
+
+${\textsf{\color{#9f9164}ㅤㅤ✦ㅤㅤ}}$
+
+<br />
+
+[pronouns . pg](https://en.pronouns.page/@irnman) 
+
+<br />
+
+${\textsf{\color{#9f9164}ㅤㅤ✦ㅤㅤ}}$
+
+<br />
+ 
+[strawpage](https://starkrogers.straw.page) 
+ </sub>
 
 
-  
+
+
 
 
