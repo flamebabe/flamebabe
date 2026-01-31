@@ -47,14 +47,9 @@
 
 [strawpage](https://starkrogers.straw.page) 
  </sub>
-
-<br />
-<br />
+ 
 <br />
 <br />
 <br />
 
-
-<br />
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"> ${\textsf{\color{#a41e30}ⓘ I can get easily irritated, don't be weird if I don't know you. Constant low social battery, expect slow replies.}}$
+<p align="center"> ${\textsf{\color{#a41e30}ⓘ I can get easily irritated, don't be weird if I don't know you. Constant low social battery, expect slow replies.}}$
