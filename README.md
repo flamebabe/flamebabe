@@ -22,7 +22,7 @@
 <br />
 
 <sub>
-<p align="centre">
+<p align="left">
  
   [新book](https://ironman.atabook.org) 
 
