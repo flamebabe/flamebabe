@@ -31,8 +31,8 @@
 <br />
 <br />
 <br />
-
- <sub>
+<sub>
+<p align="centre">
  
   [新book](https://ironman.atabook.org) 
 
