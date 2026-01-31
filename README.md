@@ -1,11 +1,11 @@
-<div align="center">
+<div align="middle">
 
   
 ![](https://komarev.com/ghpvc/?username=sillybillykoijoi&color=c01831&label=ㅤ&style=plastic)
 <br />
 
 
-<img align="right" width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/39c12def-b09d-474e-963b-d3b9e9d6445a" />
+<img align="right" width="700" height="700" alt="image" src="https://github.com/user-attachments/assets/39c12def-b09d-474e-963b-d3b9e9d6445a" />
 
 
 
@@ -22,7 +22,7 @@
 <br />
 
 <sub>
-<p align="left">
+<p align="cenre">
  
   [新book](https://ironman.atabook.org) 
 
