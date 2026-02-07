@@ -23,7 +23,11 @@
 <sub>
 <p align="center">
  
-[新book](https://ironman.atabook.org) [pronouns . pg](https://en.pronouns.page/@irnman)  [strawpage](https://starkrogers.straw.page) 
+[新book](https://ironman.atabook.org)
+${\textsf{\color{#7c8080}ㅤㅤ✦ㅤㅤ}}$
+[pronouns . pg](https://en.pronouns.page/@irnman)
+${\textsf{\color{#7c8080}ㅤㅤ✦ㅤㅤ}}$
+[strawpage](https://starkrogers.straw.page)
  </sub>
  
 <br />
