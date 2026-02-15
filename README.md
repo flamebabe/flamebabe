@@ -27,7 +27,7 @@
 ${\textsf{\color{#7c8080}ㅤㅤ✦ㅤㅤ}}$
 [pronouns . pg](https://en.pronouns.page/@irnman)
 ${\textsf{\color{#7c8080}ㅤㅤ✦ㅤㅤ}}$
-[strawpage](https://starkrogers.straw.page)
+[strawpage](https://tny-strk.straw.page)
  </sub>
  
 <br />
